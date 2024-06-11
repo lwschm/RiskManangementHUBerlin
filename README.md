@@ -1,1 +1,1 @@
-# RiskManangementHUBerlin
+# Risk Manangement HU Berlin
